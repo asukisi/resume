@@ -1,4 +1,4 @@
-# Artem Moskalev  
+# Мокринский Михаил Юрьевич
 
 **📧 Email:** [zajcevaalina.776@gmail.com](mailto:zajcevaalina.776@gmail.com)  
 **📞 Телефон:** +7 (951) 859-61-30  
